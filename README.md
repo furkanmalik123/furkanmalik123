@@ -5,7 +5,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=furkanmalik123&label=Profile%20views&color=0e75b6&style=flat" alt="furkanmalik123" /> </p>
 
-- 📄 Know about my djlks 
+- 📄 Know about my experiences
 [https://cyan-ethelda-8.tiiny.site](https://cyan-ethelda-8.tiiny.site)
 
 <h3 align="left">Connect with me:</h3>
